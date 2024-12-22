@@ -1,0 +1,2 @@
+# gampang
+mining KONTOL
